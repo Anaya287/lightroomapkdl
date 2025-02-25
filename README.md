@@ -41,7 +41,7 @@
 
     <h2>Conclusion</h2>
 
-    <p>The <a href=https://lightroomapkdl.com/> Lightroom MOD APK Premium Unlocked</a> offers an enticing way to access premium features without a subscription. However, users should weigh the benefits against the potential risks, including security and legality concerns. For those who are serious about photography and editing, it's often safer to opt for the official version to ensure they get proper support and updates.</p>
+    <p>The Lightroom MOD APK Premium Unlocked offers an enticing way to access premium features without a subscription. However, users should weigh the benefits against the potential risks, including security and legality concerns. For those who are serious about photography and editing, it's often safer to opt for the official version to ensure they get proper support and updates.</p>
 
 </body>
 </html>
